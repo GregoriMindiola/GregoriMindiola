@@ -1,4 +1,4 @@
-Hi 👋 My name is Gregori
+Hi there! 👋, I'm Gregori Mindiola
 ========================
 
 ### Skills
